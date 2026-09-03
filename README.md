@@ -1,0 +1,1 @@
+# gopal-privacy-policy
